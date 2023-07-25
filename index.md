@@ -1,2 +1,1 @@
-# 9alaxy's Blog
 
